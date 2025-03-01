@@ -1,1 +1,1 @@
-Aslam Ahmad Usman nrp: 5027241074
+Strukdat A Aslam Ahmad Usman nrp: 5027241074
